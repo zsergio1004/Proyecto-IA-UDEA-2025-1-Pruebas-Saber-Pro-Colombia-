@@ -8,3 +8,5 @@ CC. 1007291146
 Ingeniería mecánica
 
 Video entrega 2: https://youtu.be/ItTfPS63864
+
+Video entrega 3: https://youtu.be/iAtQ9WayjzY
